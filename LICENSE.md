@@ -1,4 +1,4 @@
-#  
+#  dandy's world updated Script offers the most advanced dandy's world Script, with instant win and custom skins. Perfect for dominating any match.
 
 
 
